@@ -1,2 +1,0 @@
-# Vashisht-Portfolio
-My Portfolio
